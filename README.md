@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Vidya-Krishna
-- 👀 I’m interested in Anime, Movies, TV, Coding
+- 👀 I’m interested in Movies & TV, Personal Finance, Investments & stock markets, Coding.
 - 🌱 I’m currently learning Java, JavaScript, HTML, CSS
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me krishnavidya011@gmail.com
