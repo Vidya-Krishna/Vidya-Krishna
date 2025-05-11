@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Vidya-Krishna
-- 👀 I’m interested in Movies & TV, Personal Finance, Investments & stock markets, Coding.
+- 👀 I’m interested in Coding, Personal Finance, Investments & stock markets, Movies/TV/LNs/Manga/Anime.
 - 🌱 I’m currently learning Python, Java
 - 📫 krishnavidya011@gmail.com 
 
